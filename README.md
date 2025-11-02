@@ -1,1 +1,3 @@
-ne oas corriger ca "error" (j'ai fais push en utilisant du compte d autre eleve oussama sahra , je suis OTMANI Seyfeddine IASD-29 ) desolé...
+il y'a une error desolé 
+j'ai fais push en utilisant le compte de mon ami 
+je suis: IASD-29 ---> OTMANI Seyf Eddine 
